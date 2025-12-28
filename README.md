@@ -1,0 +1,2 @@
+# gamzecipskolamebisumarketcukutaseker
+Sanane IBNI
